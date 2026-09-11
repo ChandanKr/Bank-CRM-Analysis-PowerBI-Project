@@ -1,7 +1,7 @@
 ![image](https://github.com/user-attachments/assets/fb8257b5-ed6f-4103-8e45-a2bac2a03c88)
 
 #### Google Drive: 👉 [Click Here for Project Assets](https://drive.google.com/drive/folders/1HxFXLLucTcLk8ATqBs9kTaCzF4RpngQX?usp=sharing) 
-#### Project Display: 👉 [Click Here for Project Display]([https://drive.google.com/drive/folders/1HxFXLLucTcLk8ATqBs9kTaCzF4RpngQX?usp=sharing](https://www.linkedin.com/posts/chandan2606_bank-crm-complete-analysis-activity-7340363055156858883-MHdo?utm_source=share&utm_medium=member_desktop&rcm=ACoAACC5PeABRcjPA7W-qIwgxqt6E8DcHjzANK4)) 
+#### Project Display: 👉 [Click Here for Project Display](https://www.linkedin.com/posts/chandan2606_bank-crm-complete-analysis-activity-7340363055156858883-MHdo/?utm_source=share&utm_medium=member_desktop&rcm=ACoAACC5PeABRcjPA7W-qIwgxqt6E8DcHjzANK4) 
 ---
 
 ## Agenda
